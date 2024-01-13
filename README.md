@@ -1,2 +1,1 @@
 Jakub Kowalski
-14
